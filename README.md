@@ -9,3 +9,6 @@
  *
 ![PANELA](https://github.com/Samuelcruzfelixsales/E-INFORMATICA/assets/163362445/3de56dce-580d-430c-9dcf-80f3b4ce9c3d)
 
+*
+
+![image](https://github.com/Samuelcruzfelixsales/E-INFORMATICA/assets/163362445/f2740d9c-34f7-4de5-893a-48a517d80137)
